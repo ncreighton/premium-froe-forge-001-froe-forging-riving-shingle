@@ -1,0 +1,2 @@
+# premium-froe-forge-001-froe-forging-riving-shingle
+Stop juggling scattered notes and forgotten measurements for your froe forging and shingle splitting projects. The Froe Forging &amp; Riving Shingle Split Craft Hub is the only Notion template that unites the entire workflow — from hammering your first froe to stacking perfectly rived shingles — in one organized system.  This template solves the chaos
